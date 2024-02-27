@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @psagaydachniy
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning EN
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ..
+- 💞️ I’m looking to collaborate on Satoshi
+- 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
